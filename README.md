@@ -1,4 +1,4 @@
-# EL HADRAMI OUSSAMA -- @same-ou 🦈
+# EL HADRAMI OUSSAMA -- @same-ou *サメ*
 ---
 **`Big Data and IoT | Data Science | Machine Learning`**
 
